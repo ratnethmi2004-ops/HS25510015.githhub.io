@@ -61,6 +61,9 @@ Exploring coding for biology (bioinformatics basics)
 
 Photography and nature exploration
 
+7. Resume
+   
+  
 7. Contact Details
 
 Email: ratnethmi2004@gmail.com
